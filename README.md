@@ -1,4 +1,10 @@
-ok im so lazy with this . . .
+![E6JsrWFWYAIzrrE](https://github.com/user-attachments/assets/a284ed95-e354-4716-b423-1a109ac4c227)
+
+
+
+
+
+ im so lazy with this . . .
 
 meow
 
